@@ -1,6 +1,4 @@
-## Hi there 👋
-
-<!--
+## oi lindos eu um meio menino mais me indentifico como super gay
 **renanrodrigues123/renanrodrigues123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
 Here are some ideas to get you started:
